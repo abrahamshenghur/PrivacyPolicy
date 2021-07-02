@@ -1,3 +1,4 @@
+
 # Privacy Policy
 Effective date: July 2, 2021
 
